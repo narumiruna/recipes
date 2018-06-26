@@ -1,4 +1,4 @@
-# Creme Brulee (法式烤布蕾)
+# Creme Brulee
 
 ## 材料 (4人)
 - 鮮奶油 300g
